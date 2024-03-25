@@ -1,5 +1,5 @@
 # MODUL-2_2311102074
-Nama : Arnanda setya nosa putra 
+Nama : Arvan Murbiyanto
 
 NIM  :2311102074
 
